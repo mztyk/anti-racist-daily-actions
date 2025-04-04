@@ -15,7 +15,7 @@ A simple, practical desk reminder for incorporating anti-racist practices into y
 - 👂 **Listen** – Receive feedback with humility, reflection, and a willingness to grow.
 - ✊ **Support BIPOC** – Uplift and invest in Black, Indigenous, and People of Color through your choices and actions.
 
-Remember, anti-racism is a lifelong pursuit. Rest and recharge so you can come back and keep showing up.
+Being anti-racist is a lifelong pursuit. Keep showing up.
 
 ## 🔗 License
 
